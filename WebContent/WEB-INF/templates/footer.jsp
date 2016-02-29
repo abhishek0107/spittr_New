@@ -1,0 +1,1 @@
+Copyright © www.spittr.com
